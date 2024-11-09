@@ -1,4 +1,3 @@
-About Me
 As a new artist, I’ve always found myself captivated by the small, silent expressions that speak louder than words. There’s something mesmerizing about watching people, studying the subtle shifts in their gaze, and understanding the stories held within their eyes. For me, eyes are the windows not just to the soul, but to a world of emotions, thoughts, and experiences. This fascination with human expression, especially through the eyes, has led me to create this collection—my way of celebrating the diversity, beauty, and mystery captured in every glance.
 
 About the Collection: Diversity of the Eyes
